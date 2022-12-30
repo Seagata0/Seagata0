@@ -13,4 +13,17 @@ I was told that I rarely touch grass these days. <br>
 I'm trying to explain that I'm a person who wishes to live a quiet life. <br>
 I take care not to trouble myself with any enemies, and I try to didnt get salted by other people's Gacha. <br>
 That is how I deal with society, and I know that is what brings me happiness. <br>
-Although, if you want to talk to me just chat me via Telegram @seagata. <br>
+Although, if you want to talk to me just chat me via Telegram <i>@seagata.</li> <br>
+
+<h1>Skills</h1>
+<ul>
+  <li>CSS (Intermediate)</li>
+  <li>Javascript (Basic)</li>
+  <li>Python (Basic)</li>
+  <li>C++ (Basic)</li>
+  <li>Go (Basic)</li>
+  <li>Network Engineering (CCNA)</li>
+  <li>Photoshop (Intermediate)</li>
+  <li>Premiere Pro & After Effect (Basic)</li>
+  <li>TOEIC (885)</li>
+</ul>
