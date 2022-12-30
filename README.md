@@ -8,7 +8,7 @@ I'm in bed by 11 PM, and make sure I get at least 6 hours of sleep, no matter wh
 After doing my Genshin daily commission and check on my oil and ship in azur lane then praying before bed, <br>
 I usually have no problems sleeping until morning. <br>
 Just like a dread man, I wake up with dead inside feeling in the morning.<br>
-I was told that I rarely touching grass these days. <br>
+I was told that I rarely touch grass these days. <br>
 <br>
 I'm trying to explain that I'm a person who wishes to live a quiet life. <br>
 I take care not to trouble myself with any enemies, and trying to didnt get salted by other people. <br>
