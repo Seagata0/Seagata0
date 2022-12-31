@@ -5,7 +5,7 @@ My house is in the southern section of Kendari, where all the uncivilized ppl ar
 I study in Telkom University Bandung, and I always makes sure to submit my assignment before the Deadline. <br>
 I don't smoke, but I'm addicted to Gacha. <br>
 I'm in bed by 11 PM, and make sure I get at least 6 hours of sleep, no matter what. <br>
-After doing my Genshin daily commission and check on my oil and ship in azur lane, then praying before bed, <br>
+After doing my Genshin daily commission and check on my oil and ship in Azur Lane, then praying before bed, <br>
 I usually have no problems sleeping until morning. <br>
 Just like a dread man, I wake up with dead inside feeling in the morning.<br>
 I was told that I rarely touch grass these days. <br>
