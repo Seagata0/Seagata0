@@ -18,7 +18,7 @@ Although, if you want to talk to me just chat me via Telegram <i>@seagata.</i> <
 <h1>Skills</h1>
 <ul>
   <i>
-  <li>CSS (Intermediate)</li>
+  <li>CSS (Basic)</li>
   <li>Javascript (Basic)</li>
   <li>Python (Basic)</li>
   <li>C++ (Basic)</li>
