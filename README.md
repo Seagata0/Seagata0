@@ -5,7 +5,7 @@ My house is in the southeastern section section of Kendari, where all the uncivi
 I study in Telkom University Bandung, and I always makes sure to submit my assignment before the Deadline. <br>
 I don't smoke, but I'm addicted to Gacha. <br>
 I'm in bed by 11 PM, and make sure I get at least 6 hours of sleep, no matter what. <br>
-After doing my Genshin daily commission and check on my Azur Lane, Blue Archive, FGO JP, FGO NA, and Honkai Star Rail Account, I pray to the GOD then sleep, <br>
+After doing my Genshin daily commission and check on my Azur Lane, Blue Archive, FGO JP & NA, Limbus Company, and Honkai Star Rail Account, I pray to the GOD then sleep, <br>
 I usually have no problems sleeping until morning. <br>
 Just like a dread man, I wake up with dead inside feeling in the morning.<br>
 I was told that I rarely touch grass these days. <br>
