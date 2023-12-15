@@ -11,6 +11,6 @@ Just like a dreadful man, I wake up with a dead inside feeling in the morning.<b
 I was told that I rarely touch grass these days. <br>
 <br>
 I'm trying to explain that I'm a person who wishes to live a quiet life. <br>
-I take care not to trouble myself with any enemies, and I try to didn't get salted by other people's Gacha. <br>
+I take care not to trouble myself with any enemies, and I try to not get salted by other people's Gacha. <br>
 That is how I deal with society, and I know that is what brings me happiness. <br>
 Although, if you want to talk to me just chat with me via Telegram <i>@seagata.</i> <br>
