@@ -1,4 +1,4 @@
-[**Portofolio**](https://seagata0.github.io/portofolio/)
+[**Portfolio**](https://seagata0.github.io/portfolio/)
 
 <h1>Introduction</h1>
 My name is <i>Seagata Ade Barus</i>. <br>
